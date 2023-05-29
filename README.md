@@ -5,12 +5,6 @@
 
 帮兄弟们找的新家：
 
-tokyomotion.net  
+www.tokyomotion.net  
 
-erome.com
-
-porndr.com
-
-bitporno.to
-
-x-18.org
+www.erome.com
